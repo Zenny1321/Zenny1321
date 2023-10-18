@@ -2,4 +2,9 @@
 Eu me chamo Paulo Cesar, tenho 17 anos, atualmente estou cursando adminitração.
 Tenho o sonho de ser cantor, ja tenho um canal com musicas, meu nome artistico é Zenny.
 Tento aproveitar todas as oportunitades, não quero que tudo seja apenas trabalho, gosto 
-de momentos com meus amigos, tento te varios momentos com eles, são como uma segunda familia pra mim. 
+de momentos com meus amigos, tento ter varios momentos com eles, são como uma segunda familia pra mim. 
+**Talvez este seja meu primeiro site** eu acho que vou fazer um site para minhas redes socias onde posto as musicas fotos e 
+etc.. 
+Gosto muito de tirar fotos, quero ser fotografo tambem 📸 acho que vou fazer um instagram postando as foto que eu tiro.
+Eu faço muitas coisas, tenho varios sonhos, tipo fazer uma stream mestrando um rpg de mesa enfim são varios...
+
